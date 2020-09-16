@@ -1,0 +1,1 @@
+# Spekter-GmbH-Task
